@@ -1,6 +1,6 @@
-u# firstbranch 
+# firstbranch 
 
 
 
-Can i Do you me a favour
+Can u Do you me a favour
 I'm new to dis world
